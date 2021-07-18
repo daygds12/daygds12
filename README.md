@@ -2,7 +2,7 @@
 
 My name is Dayane Garcia, I'from Brazil 🌎
 
-I'm studying systems analysis and development 💻👩🏻
+I'm studying systems analysis and development 💻👩🏻<br>
 I love pizza 🍕 traveling✈️ and Rock and roll 🤘🏻 
 
 
