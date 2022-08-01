@@ -2,7 +2,7 @@
 
 My name is Dayane I'from Brazil 🌎
 
-I'm studying systems analysis and development 💻👩🏻<br>
+I'm IT engineering analyst 💻👩🏻<br>
 I love 🍕 ✈️ and Rock and roll 🤘🏻 
 
 
