@@ -2,7 +2,7 @@
 
 My name is Dayane I'from Brazil 🌎
 
-I'm IT engineering analyst 💻👩🏻<br>
+I'm software engineer💻👩🏻<br>
 
 
 
